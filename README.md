@@ -1,0 +1,3 @@
+- 👋 Hola, Soy @luisfmp9 Luis Fernando Mercado Paredes
+- 👀 Estoy interesado en desarrollo de videojuegos y sitios web, así como proyectos de software y de innovación.
+- 🌱 Me encanta aprender de muchas cosas, cómo ciencias, letras, artes y negocios.
